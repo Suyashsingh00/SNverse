@@ -1,2 +1,2 @@
 # SNverse
-imagination can be feel by everyone.
+imagination can be play by everyone.
